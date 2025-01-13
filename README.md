@@ -1,4 +1,7 @@
 Blast Thru Game
+DEMO VIDEO:
+Link (https://drive.google.com/file/d/1ZCh7MCdcxhEtdRLMjzKJd9TzN44XyLEt/view?usp=sharing)
+Download the Game: (https://drive.google.com/file/d/1FTUKYIhVZM-hxZPun4eNVGA9_CWnn-5R/view?usp=sharing)
 
 DESCRIPTION:
 
